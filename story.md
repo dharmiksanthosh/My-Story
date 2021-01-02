@@ -5,4 +5,4 @@ the monkey everyday used to offer some fruits to crocodile, slowly slowly they b
 crocodile used come to him everyday for more fruits, one day his wife said "if the fruits given by monkey is so sweet"
 he himself must be tasty.
 
-crocodile's wife demanded to eat monkey's heart.
+the mokey wanted to make some clothes for himself using crocodile's skin
